@@ -1,6 +1,6 @@
-- 👋 Hi, I’m asseeltarish
-- 👀 I’m interested in AI and any thin related with IT
-- 🌱 I’m currently studying my seccond year in varsity
+- 👋 Hi, I’m Aseel Taresh
+- 👀 I’m interested in AI and any thing related to IT
+- 🌱 I’m currently on my Final Graduarion Year
 - 📫 How to reach me : asseeloalazazi2000@gmail.com or my phone number +967 773 693 332 
 
 <!---
